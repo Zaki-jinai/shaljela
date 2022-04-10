@@ -1,2 +1,2 @@
 # shaljela
-revision githup and 
+revision githup and and jinai
